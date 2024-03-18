@@ -1,4 +1,4 @@
-### Hi there 👋
+#chronic mcr fan. Im lowkey real cool so HMU
 
 <!--
 **valraes/valraes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
