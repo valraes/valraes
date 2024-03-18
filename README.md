@@ -2,7 +2,7 @@
   
   i rlly like music
  
-  im super fun nd cool sooo Yahh :3
+  im a freak Fr jus lmk..
  
 															
                                               
