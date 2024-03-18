@@ -1,10 +1,10 @@
-                                                           rory . 16 /any
-                                                          i rlly like music
-                                                  im super fun nd cool sooo Yahh :3
-                                                      check card for interests
-                                                      + pls int if u like too thx
-                                                            DONT BE WEIRD 
-
+  rory . 16 /any
+  
+  i rlly like music
+ 
+  im super fun nd cool sooo Yahh :3
+ 
+															
                                               
 
 ![02d99c9394c664d9cd759fd8582718a3](https://github.com/valraes/valraes/assets/163700085/2c7e3e94-d2ed-4148-ab6e-73c13e52feb6)
