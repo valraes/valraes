@@ -3,6 +3,8 @@
   i rlly like music . #1 alesana fan
  
   im a freak Fr jus lmk..
+
+  disc: frerardie
  
 															
                                               
