@@ -2,8 +2,7 @@
   
   i rlly like music . #1 alesana fan
  
-  im a freak Fr jus lmk..
-
+  but im keep it 1 hundo Im chumbucket bro💜 To be factual
   disc: frerardie
  
 															
